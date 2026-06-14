@@ -1,2 +1,2 @@
 # info
-chud
+hi gu,s
